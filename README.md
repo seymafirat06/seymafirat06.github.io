@@ -1,0 +1,1 @@
+# seymafirat06.github.io
